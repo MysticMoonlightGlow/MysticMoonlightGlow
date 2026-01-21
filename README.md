@@ -8,4 +8,4 @@
 
 ---
 
-`DNI:` [Under 11 DNI and over 19 DNI]  [DNI if you make any sexual jokes towards me or my coping links(will be immeditate block if already addressed or shown discomfort but when I say my coping links I don't mean you can't say sexual jokes about the character itself, just don't say it directly towards my coping links' face)]  [Anyone From my DNI(OR IWEC depending on what they did)/STAY AWAY list]
+`DNI:` [Under 11 DNI and over 19 DNI]  [DNI if you make any sexual jokes towards me or my coping links(will be immeditate block if already addressed or shown discomfort but when I say my coping links I don't mean you can't say sexual jokes about the character itself, just don't say it directly towards my coping links' face)]  [Anyone From my DNI(OR IWEC depending on what they did)/STAY AWAY list]  [THE "PRO TREE + ETC SPOT" IN SAFE SEVER!! Yall are child predators and yall are **DISGUSTING**. I don't care if you "don't condon it irl" yes you do. You know you do and you think hiding behind the screen with ur "fetishes" will keep you safe. Doing this shit in safe sever with minors is weird and always will be weird in general. You are not safe from your sins.]
