@@ -8,7 +8,7 @@
 
 ---
 
-`IWEC:` [SYSTEMS (I have no problems with them, systems are cool to me but an iccident accured with one and I kind of want to avoid them unless we are already friends or cool with each other.(once again no hate to systems so don't get any wrong ideas COUGHSS))] [ANYONE FROM ANY FANDOM IM IN (i cant trust all of yall now espically dandys world ppl/undertale ppl)] [People with TOO many friends(kind of not trust worthy imo)] [Overly senstive ppl] [Homestuck ppl lowkey shouldve put this in my dni list bcs some of yall are VERY weird but i give chances.. ig.. might block/hide all of yall if we arent cool tbh] [People who know me irl (YIKES!!)] [Clingy or desperate ppl] [Christians (might block SOME of yall bcs of trauma(??) probably not trauma just hate or smth with my family's obessivion with god)]
+`IWEC:` [SYSTEMS (I have no problems with them, systems are cool to me but an iccident accured with one(a problemantic undertale person) and I kind of want to avoid them unless we are already friends or cool with each other.(once again no hate to systems so don't get any wrong ideas COUGHSS))] [ANYONE FROM ANY FANDOM IM IN (i cant trust all of yall now espically dandys world ppl/undertale ppl)] [People with TOO many friends(kind of not trust worthy imo)] [Overly senstive ppl] [Homestuck ppl lowkey shouldve put this in my dni list bcs some of yall are VERY weird but i give chances.. ig.. might block/hide all of yall if we arent cool tbh] [People who know me irl (YIKES!!)] [Clingy or desperate ppl] [Christians (might block SOME of yall bcs of trauma(??) probably not trauma just hate or smth with my family's obessivion with god)]
 
 ---
 
