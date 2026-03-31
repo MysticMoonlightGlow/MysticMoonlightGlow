@@ -33,4 +33,4 @@
 # Did you forget something?
 - Yes, this is currently a WIP (Work in Progess) and will not be finished until I stop being a lazy bum and finish that damned (excuse my language) rentry.
 ---
-<img width="450" height="297" alt="image" src="https://github.com/user-attachments/assets/49f5eac9-f6ec-4e7d-b262-9a0fa2c6169a"/> [![image.png](https://i.postimg.cc/wjdksjsn/image.png)](https://postimg.cc/0bcSTxnC)
+<img width="450" height="297" alt="image" src="https://github.com/user-attachments/assets/49f5eac9-f6ec-4e7d-b262-9a0fa2c6169a"/>
