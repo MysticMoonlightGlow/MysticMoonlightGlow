@@ -23,6 +23,7 @@
 > [!WARNING]
 > - I am very woke and agnostic (and I believe in the sun and mother nature).
 > - I make sexual jokes and sometimes political jokes (only about America's horrible state).
+> - I am very strict and hold up "high" expections (especially for Ponytown-ers), I have over 45+ pages (50 is unfortunely max) and can't see much people so, if we do become friends I may or may not unblock your friend depending on why I blocked them.
 > - I will and CAN say slurs I can reclaim as I am African America, Omnisexual (preferably gay or into men), and Trans.
 > - I am mentally unwell but currently not diagnoised professionaly (and no I don't self diagnosis).
 > - I snap quick and have a bad temper most of the time (unless it's friends or any of my followers that I know then we will be cool) but other than that I snap easily at strangers I don't know (unless you're a friend of my friend and confirmed of it).
