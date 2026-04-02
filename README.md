@@ -1,6 +1,7 @@
 # What can you call me?
 - FireAmber or Amber
 - Ultra Magnus (or Minimus Ambus for my friends and close ones only, thank you kindly)
+- Sundial
 - Beowulf
 - Sun
 - Moonlight
