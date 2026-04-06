@@ -23,7 +23,7 @@
 # A little warning about me or about me.
 > [!WARNING]
 > - I am very woke and agnostic (and I believe in the sun and mother nature).
-> - I make sexual jokes and sometimes political jokes (only about America's horrible state).
+> - I make sexual jokes and sometimes "political" jokes (**ONLY** about America's horrible state). I must also include my humor is a bit strange (TikTok-ish) and sometimes it's rude/mean jokes (if you don't like it please tell me off, speak up for yourself if anything I say or do makes you or anyone else uncomfortable. 
 > - I am very strict and hold up "high" expections (especially for Ponytown-ers), I have over 45+ pages (50 is unfortunely max) and can't see much people so, if we do become friends I may or may not unblock your friend depending on why I blocked them.
 > - I will and CAN say slurs I can reclaim as I am African America, Omnisexual (preferably gay or into men), and Trans.
 > - I am mentally unwell but currently not diagnoised professionaly (and no I don't self diagnosis).
