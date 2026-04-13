@@ -12,13 +12,11 @@
 # What are my pronouns?
 - He
   - Him
-- They
-  - Them
 - It
   - It's
 - Star
   - Star's
-- No femmine pronouns, please and thank you. (Prescribed exception: Wisk or if it's a coping link with a pronoun of [She/Her])
+- No femmine pronouns (or [They, Them] unless you don't know my pronouns), please and thank you. (Prescribed exception: Wisk or if it's a coping link with a pronoun of [She/Her])
 
 # A little warning about me or about me.
 > [!WARNING]
