@@ -25,7 +25,7 @@
 > - I am very strict and hold up "high" expections (especially for Ponytown-ers), I have over 45+ pages (50 is unfortunely max) and can't see much people so, if we do become friends I may or may not unblock your friend depending on why I blocked them.
 > - I will and CAN say slurs I can reclaim as I am African America, Omnisexual (preferably gay or into men), and Trans.
 > - I am mentally unwell but currently not diagnoised professionaly (and no I don't self diagnosis).
-> - I snap quick and have a bad temper most of the time (unless it's friends or any of my followers that I know then we will be cool) but other than that I snap easily at strangers I don't know (unless you're a friend of my friend and confirmed of it).
+> - I snap quick and have a bad temper most of the time (mostly due to school tiring me out everyday) and I snap very easily at strangers (of course not all the time especially if it's someone in the same fandom as me, friend of a friend (do clarify and tell me though), or one of my followers on any social media app (clarify so)). So please, be careful!
 > - I have terrible memory (I won't remember if you told me something or if I told you something).
 > - I also like people to be blunt with me (if I did anything wrong (and prehaps proof would help too) then I want to be able to apologize properly for hurting you as well as proper criticism and feedback on my behavior (I am currently trying to fix myself and do better)).
 > - I have school since I am 15 so, my time is prehaps very limited until break times.
