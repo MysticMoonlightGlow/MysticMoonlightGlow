@@ -29,7 +29,7 @@
 > - I have terrible memory (I won't remember if you told me something or if I told you something).
 > - I also like people to be blunt with me (if I did anything wrong (and prehaps proof would help too) then I want to be able to apologize properly for hurting you as well as proper criticism and feedback on my behavior (I am currently trying to fix myself and do better)).
 > - I have school since I am 15 so, my time is prehaps very limited until break times.
-> - If you have a cosplay of the following characters you WILL be blocked: Getaway, Pharma, MAYBE Tarn(just IWEC just in case), Swad (Swap Dreamtale as a whole), Any The Coffin of Ashely and LeyLey characters, Jimmy mouthwashing, and more will be added soon. These characters have brung immense trauma to my coping links and I will block anyone who has these characters. I'm sorry (not sorry) if this offends you but that is on you if you like these characters anyways.
+> - If you have a cosplay of the following characters you WILL be blocked: Getaway, Pharma, MAYBE Tarn(just IWEC just in case), Swad (Swap Dreamtale as a whole), Any The Coffin of Ashely and LeyLey characters, Jimmy mouthwashing, and more will be added soon. These characters have brung immense trauma to my coping links (or are just annoying characters in general) and I will block anyone who has these characters. I'm sorry (not sorry) if this offends you but that is on you if you like these characters anyways.
 
 # Did you forget something?
 - Yes, this is currently a WIP (Work in Progess) and will not be finished until I stop being a lazy bum and finish that damned (excuse my language) rentry.
