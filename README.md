@@ -50,7 +50,7 @@
 > [!WARNING]
 > - I am very woke and agnostic (and I believe in the sun and mother nature).
 > - I make sexual jokes and sometimes "political" jokes (**ONLY** about America's horrible state). I must also include my humor is a bit strange (TikTok-ish) and sometimes it's rude/mean jokes (if you don't like it please tell me off, speak up for yourself if anything I say or do makes you or anyone else uncomfortable. 
-> - I am very strict and hold up "high" expections (especially for Ponytown-ers), I have over 45+ pages (50 is unfortunely max) and can't see much people so, if we do become friends I may or may not unblock your friend depending on why I blocked them.
+> - I am very strict and hold up "high" expections (especially for Ponytown-ers), I have over 45+ pages (50 is unfortunely max) and can't see much people so, if we do become friends I may or may not unblock your friend depending on why I blocked them. Since I mostly reside in UTAU (Undertale) and TF (Transformers) areas, most of the people I've hidden are from there! (If you are someone I blocked please do not contact my friend and ask why I blocked you just ask on my ATA or something and leave them out of it, thanks!)
 > - I will and CAN say slurs I can reclaim as I am African American, Omnisexual (preferably gay or into men), and Trans.
 > - I am mentally unwell but currently not diagnoised professionaly (and no I don't self diagnosis).
 > - I snap quick and have a bad temper most of the time (mostly due to school tiring me out everyday) and I snap very easily at strangers (of course not all the time especially if it's someone in the same fandom as me, friend of a friend (do clarify and tell me though), or one of my followers on any social media app (clarify so)). So please, be careful!
