@@ -10,12 +10,19 @@
 - Any of my coping links or characters I see as myself will do just as fine. (Examples listed below are the main Coping Link name's I like to use)
 <details>
 <summary>Other Names</summary>
+  
 - Ink
+  
 - Error
+  
 - Nightmare
+  
 - Big Band
+  
 - Black Dahlia
+  
 - Celestia
+  
 </details>
 
 # What are my pronouns?
