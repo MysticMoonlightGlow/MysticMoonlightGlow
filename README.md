@@ -22,6 +22,18 @@
 - Black Dahlia
   
 - Celestia
+
+- Megatron
+
+- Optimus Prime
+
+- Starscream
+
+- Enderman
+
+- AWD (African Wild Dog)
+
+- Dozer
   
 </details>
 
