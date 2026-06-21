@@ -58,6 +58,7 @@
 > - I also like people to be blunt with me (if I did anything wrong (and prehaps proof would help too) then I want to be able to apologize properly for hurting you as well as proper criticism and feedback on my behavior (I am currently trying to fix myself and do better)).
 > - I have school since I am 15 so, my time is prehaps very limited until break times.
 > - If you have a cosplay of the following characters you WILL be blocked: Getaway, Pharma, MAYBE Tarn(just IWEC just in case), Swad (Swap Dreamtale as a whole), Any The Coffin of Ashely and LeyLey characters, Jimmy mouthwashing, and more will be added soon. These characters have brung immense trauma to my coping links (or are just annoying characters in general) and I will block anyone who has these characters. I'm sorry (not sorry) if this offends you but that is on you if you like these characters anyways.
+> - I should probably add this as well so; During Summer break I my mental health can and WILL degrade so my behavior because eratic and unpredictable. I do not mean to come off as rude or harsh but sometimes I will genuinely become empty headed and groggy and it'll be best not to int with me unless I know you. (Once again, sorry if I come off as rude in any way, shape, or form.
 
 # Did you forget something?
 - Yes, this is currently a WIP (Work in Progess) and will not be finished until I stop being a lazy bum and finish that damned (excuse my language) rentry.
