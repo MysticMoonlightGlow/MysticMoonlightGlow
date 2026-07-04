@@ -43,8 +43,6 @@
 
 - Enderman
 
-- AWD (African Wild Dog)
-
 - Dozer
   
 </details>
