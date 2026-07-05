@@ -93,4 +93,6 @@
 # Did you forget something?
 - Yes, this is currently a WIP (Work in Progess) and will not be finished until I stop being a lazy bum and finish that damned (excuse my language) rentry.
 ---
+<p align="center">
 <img width="450" height="297" alt="image" src="https://github.com/user-attachments/assets/49f5eac9-f6ec-4e7d-b262-9a0fa2c6169a"/>
+</p>
