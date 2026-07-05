@@ -18,6 +18,8 @@
 
 - Man Kisser(/j or /srs; Doesn't matter)
 
+- Ultra Magnus or Megatron or (Any character I like) kisser
+
 - Any of my coping links or characters I see as myself will do just as fine. (Examples listed below are the main Coping Link name's I like to use)
 </details>
 <details>
