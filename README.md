@@ -76,7 +76,7 @@
 
 - I will and CAN say slurs I can reclaim as I am African American, Omnisexual (preferably gay or into men), and Trans.
 
-- I am mentally unwell but currently not diagnoised professionaly (and no I don't self diagnosis).
+- I am mentally unwell but currently not diagnoised professionaly (and no I don't self diagnosis). I also want to add that I am a Coping Link Switcher (not to be mistaken as a System as I am not diagnoised and this is just my coping mechanism). It is basically me acting like a character or becoming the "actual character" to cope with a stressful situtation either via current or from the past.
 
 - I snap quick and have a bad temper most of the time (mostly due to school tiring me out everyday) and I snap very easily at strangers (of course not all the time especially if it's someone in the same fandom as me, friend of a friend (do clarify and tell me though), or one of my followers on any social media app (clarify so)). So please, be careful!
 
