@@ -89,6 +89,11 @@
 - If you have a cosplay of the following characters you WILL be blocked: Getaway, Pharma, Swad (Swap Dreamtale as a whole), Any The Coffin of Ashely and LeyLey characters, Jimmy mouthwashing, and more will be added soon. These characters have brung immense trauma to my coping links (or are just annoying characters in general) and I will block anyone who has these characters. I'm sorry (not sorry) if this offends you but that is on you if you like these characters anyways.
 
 - Characters like Tarn, Sentinel Prime (TF ONE version not TFA version), Overlord, and some others I forgot please IWEC or DNI at all. You may be blocked (only for 24 hours) and I will or maybe be extremly uncomfortable around you if you have any of these characters or like any of them.
+<details>
+<summary>Add Info</summary>
+  - I don't care if this is a pixel pony game DNT me if you have Tarn, Sent (TF ONE version, Bayverse, or Comic version), Overlord, and some others I need to add. I already have to block one person for doing that bs despite moving away many times clearly uncomfortable or not wanting to int with them. (This may result in a perma block lollll)
+</details>
+  
 
 - I should probably add this as well so; During Summer break my mental health can and WILL degrade so my behavior becomes eratic and unpredictable. I do not mean to come off as rude or harsh but sometimes I will genuinely become empty headed and groggy and it'll be best not to int with me unless I know you. (Once again, sorry if I come off as rude in any way, shape, or form.
 </details>
