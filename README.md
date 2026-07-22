@@ -96,6 +96,10 @@
   
 
 - I should probably add this as well so; During Summer break my mental health can and WILL degrade so my behavior becomes eratic and unpredictable. I do not mean to come off as rude or harsh but sometimes I will genuinely become empty headed and groggy and it'll be best not to int with me unless I know you. (Once again, sorry if I come off as rude in any way, shape, or form.
+<details>
+<summary>add Info</summary>
+  - Although I have C+H and anyone can C+H sometimes my mood will change like crazy and I feel too lazy to change my name :,(. So if i tell you "pls go away" then that means im not avaible for C+H or inting. other than that if im quiet, busy, or just sitting there then C+H is fine! (trust me i'd tell you to go away if I was unavaible) but other than that C+H is fine!
+</details>
 </details>
 
 
