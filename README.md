@@ -74,7 +74,7 @@
 
 - I am very strict and hold up "high" expections (especially for Ponytown-ers), I have over 45+ pages (50 is unfortunely max) and can't see much people so, if we do become friends I may or may not unblock your friend depending on why I blocked them. Since I mostly reside in UTAU (Undertale) and TF (Transformers) areas, most of the people I've hidden are from there! (If you are someone I blocked please do not contact my friend and don't ask why I blocked you OR your friend unless you're trying to be friends with me or something. Also, leave my friend out of it, thanks!)
 
-- I will and CAN say slurs I can reclaim as I am African American, Omnisexual (preferably gay or into men), and Trans.
+- I will and CAN say slurs I can reclaim as I am African American, Omnisexual (preferably gay or into men), and Trans. (If you say slurs you can't reclaim do NOT interact with me, okay? Thanks!)
 
 - I am mentally unwell but currently not diagnoised professionaly (and no I don't self diagnosis). I also want to add that I am a Coping Link Switcher (not to be mistaken as a System as I am not diagnoised and this is just my coping mechanism). It is basically me acting like a character or becoming the "actual character" to cope with a stressful situtation either via current or from the past.
 
