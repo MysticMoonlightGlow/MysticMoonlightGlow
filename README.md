@@ -92,7 +92,7 @@
 
 <details>
 <summary>Add Info</summary>
-  - I don't care if this is a pixel pony game DNT me if you have Tarn, Sent (TF ONE version, Bayverse, or Comic version), Overlord, and some others I need to add. I already have to block one person for doing that bs despite moving away many times clearly uncomfortable or not wanting to int with them. (This may result in a perma block lollll)
+  - I don't care if this is a pixel pony game DNT (or don't come near) me if you have Tarn, Sent (TF ONE version, Bayverse, or Comic version), Overlord, and some others I need to add. I already have to block one person for doing that bs despite moving away many times clearly uncomfortable or not wanting to int with them. (This may result in a perma block lollll)
 
 </details>
   
