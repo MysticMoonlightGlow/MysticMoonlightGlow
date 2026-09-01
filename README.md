@@ -2,16 +2,16 @@
 WIP / RMKING
 
 
-name: ultra magnus / amber
+name: ultra magnus (minimus ambus for frens only) / fireamber / amber / sunny / swerve
 
 
-pronouns he / they
+pronouns he;him / it;its
 
 
-Dni: tarn, sentinel fraud(tfone/bayverse/comics), overlord
+Dni: tarn, sentinel fraud(tfone/bayverse/comics), overlord , getaways (and his enablers) 
 
 
-most areas blocked: Utau ; completely blocked: transformers area, reasoning? stupid slur enablers and people who say slurs even whilst knowing it's a slur and have been told it's a slur 😞just mostly somewhat filled with shiity idiots (not all though so it's ./directed)
+most areas blocked: Utau and somewhat CRK ; completely blocked: transformers area, reasoning? stupid slur enablers and people who say slurs even whilst knowing it's a slur and have been told it's a slur 😞just mostly somewhat filled with shiity idiots (not all though so it's ./directed)
 
 
 <p align="center">
