@@ -73,6 +73,10 @@
 - I make sexual jokes and sometimes "political" jokes (**ONLY** about America's horrible state). I must also include my humor is a bit strange (TikTok-ish) and sometimes it's rude/mean jokes (if you don't like it please tell me off, speak up for yourself if anything I say or do makes you or anyone else uncomfortable.
 
 - I am very strict and hold up "high" expections (especially for Ponytown-ers), I have over 45+ pages (50 is unfortunely max) and can't see much people so, if we do become friends I may or may not unblock your friend depending on why I blocked them. Since I mostly reside in UTAU (Undertale) and TF (Transformers) areas, most of the people I've hidden are from there! (If you are someone I blocked please do not contact my friend and don't ask why I blocked you OR your friend unless you're trying to be friends with me or something. Also, leave my friend out of it, thanks!)
+<details>
+<summary>Disclaimer</summary>
+  - The whole Transformers Area is hidden so if you can't see me more than likely it's because I hid you for having a transformers skin. (This is because the area if full of idiots who don't apologize for saying slurs they can't say even AFTER being told it was a slur and they are also mostly enablers. (This doesn't mean all of them are but most of them are friends with the people who say these slurs and therefor will be labed as an enabler.)) Just wanna clear this up! ^_^
+</details>
 
 - I will and CAN say slurs I can reclaim as I am African American, Omnisexual (preferably gay or into men), and Trans. (If you say slurs you can't reclaim do NOT interact with me, okay? Thanks!)
 
