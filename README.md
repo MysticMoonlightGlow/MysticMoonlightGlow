@@ -2,7 +2,7 @@
 WIP / RMKING
 
 
-name: ultra magnus (minimus ambus for frens only) / fireamber / amber / sunny / swerve
+name: ultra magnus (minimus ambus for frens only) / fireamber / amber / sunny / swerve / braindrain
 
 
 pronouns he;him / it;its
