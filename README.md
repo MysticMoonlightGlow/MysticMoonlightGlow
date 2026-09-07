@@ -23,3 +23,6 @@ most areas blocked: Utau and somewhat CRK ; completely blocked: transformers are
 <p align="center">
 <img width="640" height="640" alt="image" src="https://github.com/user-attachments/assets/93823c20-c7c6-47b8-b64a-2067d7fd584b" />
 </p>
+
+
+<!-- The background color is `#151b23` for light mode and `#151b23` for dark mode. -->
