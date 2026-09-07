@@ -20,7 +20,4 @@ most areas blocked: Utau and somewhat CRK ; completely blocked: transformers are
 
 ***
 
-<p align="center">
-<img width="640" height="640" alt="image" src="https://github.com/user-attachments/assets/28f5f8ff-23dc-4673-bbaf-e94729c18c21" />
-</p>
-
+[![Untitled673-20260906213306.webp](https://i.postimg.cc/023GpSCR/Untitled673-20260906213306.webp)](https://postimg.cc/8jRrGj3t)
