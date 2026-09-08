@@ -8,7 +8,14 @@ name: ultra magnus (minimus ambus for frens only) / fireamber / amber / sunny / 
 pronouns he;him / it;its
 
 
-Dni: tarn, sentinel fraud(tfone/bayverse/comics), overlord , getaways (and his enablers) 
+Dni: tarn, sentinel fraud(tfone/bayverse/comics), overlord , getaways (and his enablers)
+
+<details>
+<summary>Added info</summary>
+
+(also some of yall WAYY too comfortable with making getaway skins and gifting it too, it's disgusting :sob:)
+
+</details>
 
 
 most areas blocked: Utau and somewhat CRK ; completely blocked: transformers area, reasoning? stupid slur enablers and people who say slurs even whilst knowing it's a slur and have been told it's a slur 😞just mostly somewhat filled with shiity idiots (not all though so it's ./directed)
