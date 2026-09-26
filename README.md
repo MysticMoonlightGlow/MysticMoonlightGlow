@@ -18,7 +18,7 @@ Dni: tarn, sentinel fraud(tfone/bayverse/comics), overlord , getaways (and his e
 </details>
 
 
-most areas blocked: Utau and somewhat CRK ; completely blocked: transformers area, reasoning? Most of the people there are connected with some others who have called my friend slurs despite being told they are slurs and kept saying it. Their are also people there who joke about the files and inted with a skin of said man before. So, yes, the whole area will stay blocked (yall stay being weird i cannttt :sob::sob:)
+most areas blocked: Utau and somewhat CRK ; completely blocked: transformers area, reasoning? Most of the people there are connected with some others who have called my friend slurs despite being told they are slurs and kept saying it. Their are also people there who joke about the files and inted with a skin of said man before. So, yes, the whole area will stay blocked :sob::sob:
 
 
 <p align="center">
