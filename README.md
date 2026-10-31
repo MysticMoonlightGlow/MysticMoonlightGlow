@@ -8,7 +8,7 @@ name: ultra magnus (minimus ambus for frens only) / fireamber / amber / sunny / 
 pronouns he;him / it;its
 
 
-Dni: tarn, sentinel fraud(tfone/bayverse/comics), overlord , getaways (and his enablers), proshitters, darkshitters, lesboys 🙄 [more will be added when i rmk this whole thing], ppl who still play dandy's world or even support it(block me pls if u do!! <2)
+Dni: tarn, sentinel fraud(tfone/bayverse/comics), overlord , getaways (and his enablers), proshitters, darkshitters, lesboys 🙄 [more will be added when i rmk this whole thing], ppl who still play dandy's world or even support it(block me pls if u do!! <2), hetalia ppl dniu FRIENDS or I KNOW YOU because oml most of yall are racist, weird, and.. oh my goodness i dont even wanna go on a whole deep dive about it.
 
 <details>
 <summary>Added info</summary>
